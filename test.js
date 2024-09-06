@@ -1,6 +1,6 @@
 difndifnd
 dcndndvnikv
-pklop
+
 dkvndivndivndoivn
 dkvndivndivndoivn
 IIRFilter
