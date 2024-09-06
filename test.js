@@ -1,7 +1,6 @@
 difndifnd
 dcndndvnikv
-dvndivnvoi
-dvndvndv
+
 dkvndivndivndoivn
 dkvndivndivndoivn
 IIRFilter
